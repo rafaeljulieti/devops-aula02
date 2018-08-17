@@ -1,3 +1,3 @@
 # devops-aula02
 
-Eminem, Angelina Jolie, Akon
+Eminem, Chris Hemsworth, Akon. Meus atores favoritos
