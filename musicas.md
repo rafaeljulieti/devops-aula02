@@ -1,3 +1,3 @@
 Sing for the moment
-When I'm gone
-Mockingbird
+mockingbird
+when Im gone
